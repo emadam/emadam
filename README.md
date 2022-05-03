@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **emadam@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/emad-aminmoghadam/](https://www.linkedin.com/in/emad-aminmoghadam/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/e-amin/](https://www.linkedin.com/in/emad-aminmoghadam/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
